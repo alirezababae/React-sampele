@@ -1,0 +1,1 @@
+// no tome to lern fuck
